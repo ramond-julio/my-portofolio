@@ -1,1 +1,0 @@
-# Ramond Julio Software Developer Portofolio
